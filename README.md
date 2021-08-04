@@ -1,5 +1,5 @@
 ## Hi, I'm Rowan 🍄
-🌸 - (They/She) pronouns 
+🌸 - They/them pronouns 
 
 ⭐️ - Backend development student at Turing School
 
